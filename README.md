@@ -1,6 +1,6 @@
 - 👋 ol olá, sou Henrique Ressel
 - 👀  estudo atualmente no colégio Dona Branca
-- -gosto dse jogar nas horas vagas
+- -gosto de jogar nas horas vagas (vulgo toda hora)
 
 
     _-use henrique.ressel@escoloa.pr.gov.br para entrar em contato
